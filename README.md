@@ -1,4 +1,4 @@
-## Hi, I'm Mehak Dahiya
+## 👋 Hi, I'm Mehak Dahiya
 🎓 Certifications
 
 
